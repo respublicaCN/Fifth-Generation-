@@ -19,3 +19,6 @@ Li is considered part of the "New Zhijiang Army", the party faction of Xi Jinpin
 
 原浙江省省长李强视频新闻集
 - http://www.cztv.com/liqiang
+
+之江先锋网
+- https://zjnews.zjol.com.cn/05zjnews/zjxf/gcsy/
